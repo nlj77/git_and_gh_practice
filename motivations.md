@@ -1,0 +1,1 @@
+I'm motivated by a desire to work remote, and work in a career field that I have a vested interest in, and can be passionate about. I think a software engineering career would allow me to be very mobile as far as what locations I can live in, and I hope the income is such that I'm able to freely pursue my hobbies. 
